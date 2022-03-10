@@ -1,1 +1,0 @@
-# ads-dychka-kp12
